@@ -38,7 +38,7 @@
 ## 📫 Contact
 Have feedback or want to collaborate? Reach out to me:
 
-Email: marouanebelkhdir@hotmail.fr
+Email: rachoucorp@gmail.com
 
 ---
 🎮 Thank you for playing FlyingSquidGame! Let me know your high score!
